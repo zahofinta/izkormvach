@@ -1,4 +1,0 @@
-izkormvach
-==========
-
-nqkakuv kod
